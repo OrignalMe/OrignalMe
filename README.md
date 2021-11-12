@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @OrignalMe
 - 👀 I’m interested in Bladesmithing, women, unification of teachings, get my patents submitted
 - 🌱 I’m currently learning to create and defeat xenophobia 
-- 💞️ I’m looking to collaborate on this mystery and create 
+- 💞️ I’m looking to collaborate on this mystery and create a time machine from my design safely.
 
 - 📫 How to reach me 8225 Candon Dr Colorado Springs, Colorado 80920. 719-688-3849 Blainedowell34@gmail.com
 <!---
